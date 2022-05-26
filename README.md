@@ -55,7 +55,7 @@ Mapa en la herramienta: https://miro.com/welcomeonboard/czF0N0tCRkxFUHBCMHhHQXJw
 
 # 4.Video
 
-https://drive.google.com/uc?id=16YUsTiq2yY8LiUE1eEKLO_b2CxiHbDne&export=download
+https://drive.google.com/file/d/1C8MttLjg-ajf1AR0ixbInIh4ZHlPQNOT/view?usp=sharing
 
 # 5.Concluciones 
 
